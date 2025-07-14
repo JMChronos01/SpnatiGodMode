@@ -1,0 +1,2 @@
+# SpnatiGodMode
+Cheats for SPNATI
